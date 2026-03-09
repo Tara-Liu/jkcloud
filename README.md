@@ -5,6 +5,8 @@
 ## 🚨最骚的操作来了
 群里只要有人敢提问题，下一秒就是**禁言套餐**——好家伙，解决不了问题就解决提出问题的人，操作真是骚得飞起！
 
+说起来都是气，自打这破站刚成立我就在用，算得上是**元老级冤大头**了。眼睁睁看着它从刚开始还算凑合，一步步烂到今天这个德行——节点越来越慢，服务越来越差，脸皮越来越厚！老用户怎么了？老用户提意见照样**禁言不误**，一点情面都不讲。这么多年下来，就换来这待遇？真是**养不熟的白眼狼**！
+
 ## 💩总结一下这家“神级”服务
 - **节点质量**：连不上，连不上，还是TMD连不上
 - **客服响应**：0，消息发过去直接沉入海底
@@ -20,5 +22,8 @@
 > 🛑 **避雷！避雷！大写加粗的避雷！** 🛑
 <img width="1141" height="818" alt="image" src="https://github.com/user-attachments/assets/b586e5e3-609d-42a2-bbe4-266356643dd8" />
 <img width="767" height="317" alt="image" src="https://github.com/user-attachments/assets/33ad8166-d077-46c2-a80b-59acc7737bb5" />
-![98e3351a87b53a24e8e711d4b98ef368_720](https://github.com/user-attachments/assets/9b72fb8c-cafd-46f7-9348-9689119857e0)
+<img width="417" height="741" alt="image" src="https://github.com/user-attachments/assets/225ed4c6-69da-4316-a454-783502d0e50d" />
+<img width="401" height="679" alt="image" src="https://github.com/user-attachments/assets/8f2d2890-41ef-4507-abb9-a5464272140f" />
+
+
 
